@@ -1,4 +1,4 @@
-https://click4prescriptions.com/avakinlife-avacoins-diamonds/
+https://dmli.org/avakin
 
 AVAKIN Free Online Hacks
 AVAKIN Life Mod Apk
